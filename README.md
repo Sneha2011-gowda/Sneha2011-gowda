@@ -1,7 +1,7 @@
 
 
 # 💫 About Me:
-I'm from AIML branch perceiving 6th sem 
+I'm from AIML branch perceiving 7th sem 
 
 
 ## 🌐 Socials:
